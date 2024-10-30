@@ -1,3 +1,3 @@
-## bEM VINDO AO MEU PERFIL!!👋
+## Bem vindo ao meu perfil!!👋
 
 - Atleta 
